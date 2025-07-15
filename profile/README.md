@@ -7,6 +7,6 @@ mc-evil is an organization designed to exist, just watch out it doesn't eat your
 ## Roadmap
 - Be *smol*
 - Be *medi*
-- **BE BIG!!!!** <-- ultimate goal
+- **BE BIGMAC©!!!!** <-- ultimate goal
 
 > XXL Large Double Cheesburger
